@@ -1,1 +1,1 @@
-# rsschool-cv
+https://grafpin.github.io/rsschool-cv/
